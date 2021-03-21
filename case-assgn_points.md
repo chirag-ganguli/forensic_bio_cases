@@ -51,7 +51,7 @@
 - Samples sent to esr for processing
 
 - Alicia's ex-partner Carl Eddy arrived at scene & provided futher information 
-\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
+`\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\`
 - He had received a text message from Alicia's phone referring about a stalker following her at her workplace
 
 - 3 texts sent from her phone that morning all about a stalker
@@ -83,7 +83,7 @@
 - Above process done in crime scene revealed hand smudge but not enough for fingerprint analysis
 
 - Key evidence: Fingerprint on the door knob (Visible with naked eye)
-\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
+`\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\`
 - Collected small blood amt with swab -- if DNA could identify blood was of Alicia, the print culd identify the murdered
 
 - Knife used for crime & Alicia's cell phone missing
@@ -119,7 +119,7 @@
 - Eddy consented to be photographed & underwent a medical examination
 
 - Carl Eddy's fingerprint matched the fingerprint on the door knob | Right Index finger of Carl 
-\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
+`\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\`
 - Carl said to the police that he was sleeping and the nect morning he woke up, he saw Alicia's msg
 
 - Alicia had told her mother that Carl would keep texting her & he wouldn't stop
@@ -133,7 +133,7 @@
 - HIs mother's vehicle was examined -- Evidence found from armrest
 
 - CCTV Footage revealed a car likely to Eddy's mother's car was spotted waiting on the route between Alicia and Eddy's house at the time exact to when the msg was sent from Alicia's phone. Also, Alicia's phone was found dropped in that location
-\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
+`\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\`
 - Alicia's finger nail scrapping & clipping were taken from her & sent to ESR for Examination | Had Carl Eddie's DNA
 
 - Carl's hand had some scrappings and scratches which were beleived to be result of struggle between Eddy & Alicia | Had traces of Alicia's DNA
